@@ -7,3 +7,6 @@ music artists: james marriott, the beaches, good kid, los campesinos and more!!
 our favourites from homestuck are jade and nepeta :33333 
 
 i.. dont rlly know what else to add haha
+
+check out my strawpage for more information + my social links! (please ask before adding me though ;w;)
+https://bittertxngues.straw.page/
