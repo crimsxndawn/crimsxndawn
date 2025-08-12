@@ -10,3 +10,5 @@ i.. dont rlly know what else to add haha
 
 check out my strawpage for more information + my social links! (please ask before adding me though ;w;)
 https://bittertxngues.straw.page/
+also sign my guest book!
+https://crimsxndawn.atabook.org
